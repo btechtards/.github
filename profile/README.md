@@ -4,5 +4,9 @@ BTechtards community for BTech and Engineering students & aspirants. From seriou
 
 [**📨 Contact The Moderators**](https://www.reddit.com/message/compose?to=/r/Btechtards) 
 
+[**Subreddit**](https://github.com/r/BTechtards)
+
+[**Discord Server**](https://discord.gg/z5v9gszwKX)
+
 
 
